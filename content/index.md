@@ -1,4 +1,4 @@
 ---
 title: Welcome to hleafie's digital garden!
 ---
-That's all for now~
+This marks the beginning of a new era for me. A new philosophy of "life for myself".
